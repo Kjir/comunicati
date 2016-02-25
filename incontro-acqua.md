@@ -1,0 +1,5 @@
+Mercoledi 25 novembre si è svolto il quarto incontro organizzato da Fermignano in MoVimento all’interno della nuova sede. 
+Questa volta abbiamo parlato di acqua e lo abbiamo fatto con Fernanda Marotti, Roberto Lombardi, Federica Pierotti e …? che ci hanno illustrato come quello all’acqua non sia un diritto poi così scontato.
+Nonostante il diritto di accesso all’acqua sia stato riconosciuto a livello internazionale come un diritto umano fondamentale; nonostante il referendum del 2011 con cui gli italiani hanno scelto di NON affidare la gestione dei servizi idrici locali a privati e deciso di abrogare la norma che includeva nella bolletta dell’acqua anche il rimborso del capitale investito dal gestore privato; nonostante tutto ciò, la gestione è ancora in mano ad enti privati e, in un periodo storico in cui l’inflazione sfiora lo zero, la tariffa dell’acqua è aumentata del 27% in pochi anni. 
+Le ragioni sono molteplici e complesse e abbiamo cercato di indagarle assieme ai relatori del Forum Provinciale Beni Comuni. 
+Per chi non ha potuto partecipare all’incontro o volesse rivederlo, ecco i video della serata.
