@@ -33,8 +33,13 @@ per tutti i cittadini, a prescindere dal voto che hanno espresso.
 La nostra avventura è appena all'inizio: non vediamo l'ora di realizzare, nei
 prossimi 5 anni, molte delle cose che abbiamo promesso in campagna elettorale!
 
-Ringraziamo e cittadini che hanno avuto fiducia in noi e che ci hanno chiesto di essere presenti all'interno del Comune di Fermignano. Ringraziamo anche tutte le persone che, pur sapendo di votare qualcun altro, ci hanno ringraziati e fatto i complimenti: saremo anche i vostri rapprentanti!
+Ringraziamo e cittadini che hanno avuto fiducia in noi e che ci hanno chiesto
+di essere presenti all'interno del Comune di Fermignano. Ringraziamo anche
+tutte le persone che, pur sapendo di votare qualcun altro, ci hanno ringraziati
+e fatto i complimenti: saremo anche i vostri rapprentanti!
 
 Buon lavoro a tutti i nuovi eletti!
 
-P.S.: Facciamo i nostri complimenti ai nostri amici del Movimento 5 Stelle di Fossombrone, che hanno eletto il secondo sindaco della provincia di Pesaro Urbino!
+*P.S.*: Facciamo i nostri complimenti ai nostri amici del Movimento 5 Stelle di
+Fossombrone, che hanno eletto il secondo sindaco a 5 Stelle della provincia di
+Pesaro Urbino!
